@@ -1,1 +1,1 @@
-# airdrop-guides
+# Airdrop Guides
